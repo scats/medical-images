@@ -2,6 +2,13 @@
 
 
 https://mie2018.org/     
+
+
+For authors:  https://www.iospress.nl/service/authors/     
+For submission: https://access.online-registry.net/mie2018/       
+     
+     
+    
 Key dates     
 2017-08-23: Call for contributions – submissions opens    
 
